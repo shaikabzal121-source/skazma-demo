@@ -1,4 +1,4 @@
 # skabzal
-Hi Azma
+Hi Abzal
 <br>
-hllo Azma(hii Asma)
+hllo abzal (hlo)
